@@ -1,6 +1,6 @@
 ### Greetings 👋 !
 
-## A student, developer, cat lover, and also a cat slave 🤣
+A student, developer, cat lover, and also a cat slave 🤣
 
 - 📫 You can reach me @ **ppkworkac@gmail.com**
 
